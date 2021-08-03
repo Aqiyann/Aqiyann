@@ -1,0 +1,5 @@
+- I am making a project about artificial and virtual world（New World）, which is constructed from the perspective of geography, history and so on. I hope you can help make it。
+- 我正在制作一个关于人造的、虚拟的世界（新世界）的项目，从地理、历史等角度进行构造。我希望你可以助力制作
+- 我正在製作一個關於人造的、虛擬的世界（新世界）的項目，從地理、歷史等角度進行構造。我希望你可以助力製作
+- 私は、地理や歴史などの観点から構築された人工的な仮想世界（新世界）についてのプロジェクトを作っています。あなたが協力して作ってほしいです。
+- 저 는 인공 적 이 고 가상 적 인 세계(신세계)에 관 한 프로젝트 를 만들어 지리,역사 등 측면 에서 구 조 를 하고 있 습 니 다. 나 는 네가 제작 에 협조 하 기 를 바란다
